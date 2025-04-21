@@ -1,2 +1,2 @@
 # trump
-made as an idea by a friend. 
+made as a wee joke, idea by a friend. 
